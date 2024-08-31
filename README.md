@@ -1,1 +1,1 @@
-# Quit GitHub because Microsoft
+Quit GitHub because Microsoft
